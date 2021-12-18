@@ -1,7 +1,7 @@
 
            /////////////////////////////////\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
           //This Tool Is Free I`am Not Responsable About The Way You Use It\\
-         //                    Instagram >> @s3t5 & @K_7z                   \\
+         //                    Instagram >> @s3t5                           \\
         //                     Telegram >> @zoora4                           \\
        //                      Twitter >> @OnlyExcs                           \\
       //                    https://github.com/OnlyExc                         \\
